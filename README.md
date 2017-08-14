@@ -1,7 +1,7 @@
 # MediaPlayback4
 
 Link APK<br>
-[download apk](https://drive.google.com/uc?export=download&id=0B8XRN0Oti9i4M1VYc1ZkeTc4MWc)
+[download apk](https://drive.google.com/open?id=0Bz0buv_x413HWjktMUd2WkE4Vm8)
 
 ## Identitas
 - Nama : Ladinar Nanda Aprilia 
